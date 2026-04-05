@@ -14,7 +14,7 @@ I’m constantly exploring new ideas and pushing myself to grow as a developer.
 
 ### Fun Facts:
 
-• Mr. Bean is my favourite live-action show  
-• Doraemon is my favourite cartoon  
-• I don’t mind dosa without chutney  
-• Hobbies - Chess, Drawing, Diorama, building things
+ •  Mr. Bean is my favourite live-action show  
+ •  Doraemon is my favourite cartoon  
+ •  I don’t mind dosa without chutney  
+ •  Hobbies - Chess, Drawing, Diorama, building things
