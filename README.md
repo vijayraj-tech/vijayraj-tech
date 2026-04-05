@@ -12,7 +12,7 @@ I focus on writing clean, scalable code and creating solutions that actually sol
 
 I’m constantly exploring new ideas and pushing myself to grow as a developer.
 
-### Fun Facts:
+Fun Facts:
 
  •  Mr. Bean is my favourite live-action show  
  •  Doraemon is my favourite cartoon  
